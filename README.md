@@ -13,5 +13,5 @@ Tu luyện rất khó? Không có ý tứ ta tu luyện một ngày tương đư
 
 Link truyện:
 
-[https://tutruyenchu.com/truyen/Mot-Khoa-Tu-Luyen-He-Thong-Trong-Nhay-Mat-Tram-Van-Cap](https://tutruyenchu.com/truyen/Mot-Khoa-Tu-Luyen-He-Thong-Trong-Nhay-Mat-Tram-Van-Cap)
+[https://truyenchuhub.org/truyen/Mot-Khoa-Tu-Luyen-He-Thong-Trong-Nhay-Mat-Tram-Van-Cap](https://truyenchuhub.org/truyen/Mot-Khoa-Tu-Luyen-He-Thong-Trong-Nhay-Mat-Tram-Van-Cap)
 </div>
